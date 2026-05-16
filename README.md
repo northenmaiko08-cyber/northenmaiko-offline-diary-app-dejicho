@@ -1,0 +1,1 @@
+# northenmaiko-offline-diary-app-dejicho
